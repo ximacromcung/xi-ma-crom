@@ -1,4 +1,4 @@
-<h2>Ti Ben Thủy Lực Mạ Crom:</h2>
+<h2><a href="http://thuylucsaigon.com.vn/ma-crom-cung-ty-ben/vi-VN-0-242.aspx">Ti Ben Thủy Lực Mạ Crom:</a></h2>
 Như đã biết, TI BEN THỦY LỰC MẠ CROM CỨNG đáp ứng được yêu cầu chống ma sát, chống ăn mòn và giúp bôi trơn cho các loại GIOANG PHỚT THỦY LỰC.
 
 Tính chất lớp Mạ Crom ti ben thủy lực:
@@ -32,8 +32,6 @@ Quy trình sản xuất ti ben thủy lực được giám sát chặt chẽ, m�
 Ngoài việc sản xuất ti ben thủy lực mạ crom chúng tôi con tư vấn sữa chữa các loại máy ép thủy lực, các loại xy lanh thủy lực hạng nặng của các công trình đập chặn, thủy điện, cẩu, máy ép thủy lực....
 
 Xi vui lòng liên hệ để được sự tư vấn hỗ trợ tốt nhất.
-
-[kkstarratings]
 
 <!--more-->
 
